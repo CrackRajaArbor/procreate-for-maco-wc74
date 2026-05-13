@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Procreate for macOS template with elite Template for Procreate for macOS - shortcut customization and AI-assisted design. Featuring shortcut customization and
 
 
 
